@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/93303277/139183575-8f36da12-b2ed-4a4c-9e1a-0760678b2af9.png)
+![image](https://media.discordapp.net/attachments/884703572682502164/910356595228172338/TG.jpg)
 # DISCORD-RULES---Team-TG
 
 
